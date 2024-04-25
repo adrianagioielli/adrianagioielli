@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **adrianalves.cp@gmail.com**
 
-- ⚡ Fun fact **I'm an aspiring level kendo practitioner**
+- ⚡ Fun fact **I'm a certified ikkyu level kendo practitioner**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
